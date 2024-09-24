@@ -1,6 +1,6 @@
 ## Identitas
 
-Nama: Asep Deffy Ciftady
+Nama: Asep Deffy
 
 NIM : -
 
